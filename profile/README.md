@@ -1,4 +1,4 @@
-# Donwload JioHotstar APK 25.01.27.1 [Android App/GitHub] Free For Android Version 2025 *Top1 App Trend*
+# Download JioHotstar APK 25.01.27.1 [Android App/GitHub] Free For Android Version 2025 *Top1 App Trend*
 
 ## What is Jio Hotstar Mod APK?
 Jio Hotstar Mod APK is a modified version of Hotstar, a leading streaming app offering movies, TV shows, live sports, and news. This modded version unlocks premium features, providing an ad-free experience, unrestricted access to exclusive content, and free live sports streaming. Users can enjoy Bollywood movies, Hollywood blockbusters, and IPL Indian Premier League matches without a subscription.
